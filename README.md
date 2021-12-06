@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MrBoB1989
-- 👀 I’m interested making a
+- 👀 I’m interested in almost everything. Probably because iam pretty new to the whole field of coding
 - 🌱 I’m currently learning <strong> html </stong> and <strong> css </strong> 
 - 💞️ I’m looking to collaborate on everything that is low lvl entry. 
 - 📫 How to reach me you can reach me thrue the DM function or on Twitter @FabioMzH
